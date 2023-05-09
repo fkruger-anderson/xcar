@@ -1,0 +1,1 @@
+Equipe: Ricardo Augusto dos Santos Wegner, Anderson Fozina Kruger, Andre Felipe Vigarani
